@@ -10,4 +10,5 @@ https://medium.com/@karnaryogeshwarofficial/smart-apparel-recommendation-system-
 
 # 🤝 Connect with me
 💼 https://www.linkedin.com/in/yogeshwarkarnar02 — Connect with me professionally
+
 https://medium.com/@karnaryogeshwarofficial
